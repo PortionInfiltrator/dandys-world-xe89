@@ -1,4 +1,4 @@
-
+vip dandy's world Script is the best dandy's world Script, featuring teleport and auto-collect. Safe and powerful for all your needs.
 
 
 
